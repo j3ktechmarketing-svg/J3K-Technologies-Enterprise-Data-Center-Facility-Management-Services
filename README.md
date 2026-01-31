@@ -39,7 +39,7 @@ Enterprise data center policy consulting services provide clarity, structure, an
 • Vendor coordination and service quality control  
 • Improved uptime and facility reliability  
 
-As a data center facility management services provider, J3K Technologies ensures facilities operate efficiently and reliably.
+As a [data center facility management services provider](https://www.j3ktech.com/location/marietta/data-center-services-near-me-in-marietta/ ), J3K Technologies ensures facilities operate efficiently and reliably.
 
 ---
 
@@ -63,7 +63,7 @@ An enterprise data center FM services company delivers operational discipline ac
 • Reduced dependency on internal teams  
 • Consistent operational execution  
 
-As a corporate data center facility operations contractor, J3K Technologies supports stable and compliant facility operations.
+As a [corporate data center facility operations contractor](https://www.j3ktech.com/services/data-center-services/ ), J3K Technologies supports stable and compliant facility operations.
 
 ---
 
